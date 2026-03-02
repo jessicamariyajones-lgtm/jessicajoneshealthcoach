@@ -1,2 +1,2 @@
 # jessicajoneshealthcoach
-Jessica Jones Health coach focused on joint health, mobility, and long-term wellness. I share practical, science-backed tips on nutrition, movement, and lifestyle habits to help you stay active and strong at every age. 
+Jessica Jones Healthy tips shared here cover skincare, anti-aging, joint care, women’s care, gut health, hair care, hydration, and overall wellness to help you build simple habits for balanced, confident living.
